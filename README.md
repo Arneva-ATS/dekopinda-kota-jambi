@@ -1,1 +1,1 @@
-# dekopinda-kota-jambi
+# dekopinda-karanganyar
